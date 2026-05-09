@@ -1,4 +1,4 @@
-
+Enhance Things 3 for macOS with instant Things 3 for macOS Script | quick search + cloud backup, the #1 script. Includes quick search and cloud backup for a smoother experience.
 
 
 
